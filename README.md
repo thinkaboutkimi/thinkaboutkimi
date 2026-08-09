@@ -1,2 +1,2 @@
-![ruby lane](https://media1.tenor.com/m/lqZhp-2rCr8AAAAC/smile-fear-street-part-one1994.gif)
-##### "im silly!" no boi you go on killing sprees whilst singing 😂
+![ANDREA KIMI ANTONELLI](https://media1.tenor.com/m/NnmrE86-JykAAAAC/andrea-kimi-antonelli-andrea-antonelli.gif)
+##### KIMI ANTONELLI NO. 1 FAN
